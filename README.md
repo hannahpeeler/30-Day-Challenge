@@ -9,3 +9,5 @@ It is now day two and I haven't been able to do too much. I'll try to start some
 Day 3! Day Fourrrrrrrrrrr!!! AHHHHHHHHHH
 
 I finally got my ubuntu VM to boot correctly; however, the program is extremely slow. Ugh.
+
+I'm going to be finishing my research poster soon

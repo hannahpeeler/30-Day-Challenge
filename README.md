@@ -10,4 +10,4 @@ Day 3! Day Fourrrrrrrrrrr!!! AHHHHHHHHHH
 
 I finally got my ubuntu VM to boot correctly; however, the program is extremely slow. Ugh.
 
-I'm going to be finishing my research poster soon
+I'm going to be finishing my research poster soon...

@@ -18,3 +18,5 @@ It is day 14...they still haven't noticed I'm watching
 IEEE elections are tonight and I'm excited to see who I will be working with next year
 
 We get to throw a surprise party tonight!!!
+
+The surprise party went well and we also had a social at graffiti park which was a lot of fun

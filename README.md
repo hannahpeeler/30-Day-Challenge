@@ -22,3 +22,5 @@ We get to throw a surprise party tonight!!!
 The surprise party went well and we also had a social at graffiti park which was a lot of fun
 
 Tomorrow is registration for next semester and I hope all goes well
+
+Registration is done for both UT and ACC, finally. It looks like I'll live ... for now

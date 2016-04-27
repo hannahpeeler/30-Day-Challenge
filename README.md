@@ -26,3 +26,5 @@ Tomorrow is registration for next semester and I hope all goes well
 Registration is done for both UT and ACC, finally. It looks like I'll live ... for now
 
 Moojoooooooss!
+
+This is the one day that I don't have anything due for me classes. I can feel the end of the semester coming.

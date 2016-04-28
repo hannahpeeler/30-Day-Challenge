@@ -28,3 +28,5 @@ Registration is done for both UT and ACC, finally. It looks like I'll live ... f
 Moojoooooooss!
 
 This is the one day that I don't have anything due for me classes. I can feel the end of the semester coming.
+
+My engineering communication presentation went better than expected!

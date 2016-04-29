@@ -30,3 +30,5 @@ Moojoooooooss!
 This is the one day that I don't have anything due for me classes. I can feel the end of the semester coming.
 
 My engineering communication presentation went better than expected!
+
+I performed my first duty as the new Vice Chair of IEEE at UT, I went to the Presidents' transition meeting! I've very excited to have more resonsibiities next year.

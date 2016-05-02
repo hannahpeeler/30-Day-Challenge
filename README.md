@@ -36,3 +36,5 @@ I performed my first duty as the new Vice Chair of IEEE at UT, I went to the Pre
 Next week is the last week of the semester, it's gone by so fast. I'm ready to get to the summer and finally start working
 
 Tonight is one of the final movie nights of the semester and I can't wait
+
+100 situps in Teakwondo!!!

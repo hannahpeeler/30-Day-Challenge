@@ -38,3 +38,5 @@ Next week is the last week of the semester, it's gone by so fast. I'm ready to g
 Tonight is one of the final movie nights of the semester and I can't wait
 
 100 situps in Teakwondo!!!
+
+Only three more days for this challenge, I didn't know that I could make it this far
